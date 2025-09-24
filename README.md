@@ -3,8 +3,9 @@
 <img width="618" height="714" src="https://file.garden/Zy-L3NCuUwZRDM5h/image_2025-09-23_230654125.png"  /> Nebula / Neb , , Genderfluid!
 </p>
 <p align="right">
-normally sitting in the forsaken area with friends!! dont be scared to int unless name says otherwise! <br>
-Cant believe i have to say this but DO NOT FLIRT WITH ME. Even if its a joke its weird to do that to a random person. 
+ 18 yrs old! anyone below 16 please dni. basic dni but i block / hide freely so if ur weird ur GONE <br>
+  normally sitting in the forsaken area with friends!! dont be scared to int unless name says otherwise! <br>
+Cant believe i have to say this but DO NOT FLIRT WITH ME. Even if its a joke its weird to do that to a random person. <br>
   
 </p>
 <img src="https://file.garden/Zy-L3NCuUwZRDM5h/image_2025-09-24_001558585.png">
